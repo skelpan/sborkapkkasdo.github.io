@@ -1,1 +1,0 @@
-# sborkapkkasdo.github.io
